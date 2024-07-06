@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jocrepe
 - 👀 I’m interested in Computer Programming
-- 🌱 I’m currently learning Computer Engineering
+- 🌱 I’m currently studying Computer Engineering
 - 📫 How to reach me
      [Facebook:https://web.facebook.com/profile.php?id=100007246305087]
      [Instagram:https://www.instagram.com/_ktp.crepe/]
